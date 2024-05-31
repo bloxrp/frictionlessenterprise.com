@@ -1,2 +1,0 @@
-# frictionlessenterprise.com
-frictionlessenterprise.com
